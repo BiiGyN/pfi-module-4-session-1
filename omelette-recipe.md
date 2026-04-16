@@ -4,11 +4,10 @@
 
 - 3 large eggs
 - 1 tablespoon butter
+- 30g grated cheese (cheddar, gruyere, or your preference)
 - Salt and pepper to taste
 
 ### Optional Fillings
-
-- Grated cheese
 - Diced ham
 - Chopped mushrooms
 - Diced bell peppers
@@ -20,7 +19,7 @@
 2. Heat a non-stick frying pan over medium heat and add the butter. Swirl to coat the pan as it melts.
 3. Pour in the egg mixture. Let it sit for about 30 seconds until the edges begin to set.
 4. Using a spatula, gently push the cooked edges toward the centre, tilting the pan to let the uncooked egg flow to the edges.
-5. When the omelette is mostly set but still slightly soft on top, add your fillings to one half.
+5. When the omelette is mostly set but still slightly soft on top, sprinkle the cheese and any other fillings over one half.
 6. Fold the other half over the fillings and slide onto a plate.
 7. Serve immediately.
 
